@@ -1,0 +1,1 @@
+# solo-travel-insights-2024-2025
